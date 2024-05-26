@@ -1,1 +1,0 @@
-# senpuki-b.github.io
